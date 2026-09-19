@@ -1,3 +1,2 @@
-# 💫 About Me:
-🔭 I’m currently working on side projects<br>⚡ Fun fact I enjoy walking
-waifu needed
+About Me:
+I’m currently working on side projects <br> Fun fact I enjoy walking and waifus
